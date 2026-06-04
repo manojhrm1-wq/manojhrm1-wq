@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently a BE information science engineering student <br>I'm currently learning UI UX <br>
+I'm currently learning UI UX <br>
 
 
 ## 🌐 Socials:
